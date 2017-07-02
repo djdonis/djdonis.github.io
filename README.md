@@ -1,5 +1,4 @@
-# Dennis Donis
-Mini blog temporal
+# Mini blog temporal
 
 Cosas que estoy aprendiendo y debo mejorar:
   - Dar libertad no significa separarse o desentenderse
