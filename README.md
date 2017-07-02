@@ -98,5 +98,7 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Nunca hay tiempo perdido, todo es un aprendizaje.
   - Siempre recordar lo bueno, olvidar lo malo.
   - Estúpidas redes sociales.
+  - Nunca hay que reprocharse las cosas buenas que hiciste por alguien, si las hiciste en el momento fue por que te hacía feliz.
+  - Nunca hay que hablar mal de alguien a quien le diste tus mejores momentos (o tus peores).
   
     Esto también pasará.
