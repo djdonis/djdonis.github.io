@@ -77,3 +77,6 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Demostrar interés, demostrar afecto, demostrar comprensión.
   - Ser introvertido tiene cosas positivas y cosas negativas.
   - No temer a demostrar lo que siento. A veces puede ser muy tarde.
+  - Solo las palabras no van a hacer a alguien quedarse o regresar.
+  - No importa lo que escriba en este momento sobre lo que hice mal o dejé de hacer, lo hecho, hecho está.
+  - Nunca hay que traicionar la confianza.
