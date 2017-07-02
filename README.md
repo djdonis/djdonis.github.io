@@ -97,5 +97,6 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Estúpida zona de confort.
   - Nunca hay tiempo perdido, todo es un aprendizaje.
   - Siempre recordar lo bueno, olvidar lo malo.
+  - Estúpidas redes sociales.
   
     Esto también pasará.
