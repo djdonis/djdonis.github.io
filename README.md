@@ -83,3 +83,12 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Siempre quise que nos fuéramos de viaje solos, lejos.
   - Siempre habrá alguien mejor que uno, que tome las decisiones que uno no tomó, que aproveche las oportunidades que uno no aprovechó. Duele pero hay que vivir con eso.
   - No esperar hasta que el otro actué, empezar uno mismo.
+  - Nunca es tarde para hacer lo que siempre has querido hacer.
+  - Nadie debe cargar con tus traumas.
+  - Amar no es lo mismo que enamorarse (que cliché, pero sí es cierto)
+  - Siempre hay uno que ama más que el otro (¿quién de los 2 era yo?)
+  - Debo madurar.
+  - Las cosas buenas siempre son más que las malas. Solo es cuestión de perspectivas.
+  - No hay que crearse falsas expectativas.
+  - Que lo bueno no oculte lo malo. Que lo corrija.
+  - Esto también pasará.
