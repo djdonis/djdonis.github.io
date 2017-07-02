@@ -1,7 +1,7 @@
 # Dennis Donis
 Mini blog temporal
 
-Cosa que estoy aprendiendo y debo mejorar:
+Cosas que estoy aprendiendo y debo mejorar:
   - Dar libertad no significa separarse o desentenderse
   - Si realmente te interesa alguien, te preocupas por saber que piensa o buscas las señales que te deja
   - Poner atención a las señales!
@@ -14,7 +14,7 @@ Cosa que estoy aprendiendo y debo mejorar:
   - Si no te gusta algo decirlo.
   - Cuando realmente sientes que está todo bien, NO lo está!
   - No dejar que se acumulen los problemas.
-  - No encerrarse en la vida de alguien más. Hay que vivir la propia, estar con uno mismo para poder estar bien con el otro!
+  - No encerrarse en la vida de alguien más. Hay que vivir la propia, estar bien con uno mismo para poder estar bien con el otro!
   - Ser feliz con lo poco. La envidia, la obsesión y la codicia destruyen.
   - No culpara a los demás de los problemas propios.
   - Dejar de perder el tiempo en cosas que no construyen.
@@ -26,3 +26,33 @@ Cosa que estoy aprendiendo y debo mejorar:
   - Poner límites, no solo aceptar los de los demás.
   - Hacer tiempo para platicar, salir a caminar, cambiar la rutina.
   - TEner más iniciativa.
+  - Pretender ser bueno, no necesariamente significa que lo seas.
+  - No guardar rencor, saber perdonar.
+  - Aceptar un NO, valorar un SI
+  - Nunca forzar
+  - No encerrarme en mi propio mundo, en las mismas actividades, en la misma rutina, en las mismas ideas, en las mismas maneras de hacer las cosas. 
+  - Los demás no tienen la culpa de mis problemas, no tienen porque cargar con ellos.
+  - Hay que ganarle a la apatía.
+  - Luchar también significa soltar y aceptar.
+  - Nadie va a resolver mis problemas por mí.
+  - Hay que salir a bailar, viajar, explorar, compartir, platicar, vivir. La computadora no es todo mi mundo.
+  - Buscar consejos.
+  - Nadie tiene la obligación de quedarse sino está siendo feliz.
+  - Agradecer las decisiones valientes y con tiempo.
+  - Buscar siempre algo en común que haga feliz a los dos, intereses comúnes, hobbies comúnes.
+  - La forma de ser de otra persona no te tiene que limitar en lo que crees, pensas o haces. Siempre hay que ser autentico y no cambiar lo esencial, pero sí corregir lo malo.
+  - Platicar.
+  - Siempre estar al tanto.
+  - No echarse toda la culpa.
+  - Los vicios no llevan a ningún lugar, solo ayudan a evadir y dan más soledad.
+  - Nunca se va a estar listo para nada. Mejor aprovechar las oportunidades sin sobreanalizar, no dejar escapar los momentos oportunos.
+  - Dejar de sobreanlizar, dejarse llevar.
+  - Ser claro desde el inicio.
+  - Tengo que estar bien conmigo mismo. 
+  - Nadie es imprescindible.
+  - Siempre ser honesto.
+  - No preocuparse de la opinión de los demás. Hagas o no hagas nunca van a estar conformes con vos.
+  - La extraño pero le hago daño.
+  - La extraño pero me hago daño.
+  - Esperar siempre lo peor, pero sin miedo y sin rencor.
+  - Aceptar lo que no puedo cambiar.
