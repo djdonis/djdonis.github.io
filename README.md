@@ -101,6 +101,8 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Nunca hay que hablar mal de alguien a quien le diste tus mejores momentos (o tus peores).
   - No esperar hasta el final para decir todo lo que sentís.
   - La familia es importante, pero no estarán siempre, hay que aprender a sobrevivir solo.
+  - El dinero no es tan importante.
+  - Los demás siempre van a decirte que hacer con tu vida. Hay que tomar siempre lo bueno.
   
     Esto también pasará.
     
