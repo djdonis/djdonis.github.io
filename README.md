@@ -99,5 +99,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Estúpidas redes sociales.
   - Nunca hay que reprocharse las cosas buenas que hiciste por alguien, si las hiciste en el momento fue por que te hacía feliz.
   - Nunca hay que hablar mal de alguien a quien le diste tus mejores momentos (o tus peores).
+  - No esperar hasta el final para decir todo lo que sentís.
+  - La familia es importante, pero no estarán siempre, hay que aprender a sobrevivir solo.
   
     Esto también pasará.
