@@ -94,4 +94,4 @@ Cosas que estoy aprendiendo y debo mejorar:
   - El hubiera no existe (que trillado también), mejor hacer las cosas en el momento en que se nos ocurren.
   - Si no hablo, si no profundizo, si no digo que quiero, si no digo que no quiero, nadie me va a conocer.
   
-    - Esto también pasará.
+    Esto también pasará.
