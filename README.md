@@ -82,3 +82,4 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Nunca hay que traicionar la confianza.
   - Siempre quise que nos fuéramos de viaje solos, lejos.
   - Siempre habrá alguien mejor que uno, que tome las decisiones que uno no tomó, que aproveche las oportunidades que uno no aprovechó. Duele pero hay que vivir con eso.
+  - No esperar hasta que el otro actué, empezar uno mismo.
