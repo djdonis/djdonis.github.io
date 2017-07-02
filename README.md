@@ -15,7 +15,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - No dejar que se acumulen los problemas.
   - No encerrarse en la vida de alguien más. Hay que vivir la propia, estar bien con uno mismo para poder estar bien con el otro!
   - Ser feliz con lo poco. La envidia, la obsesión y la codicia destruyen.
-  - No culpara a los demás de los problemas propios.
+  - No culpar a los demás de los problemas propios.
   - Dejar de perder el tiempo en cosas que no construyen.
   - Respetar tiempo y espacio.
   - Aprender a extrañar
@@ -27,7 +27,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - TEner más iniciativa.
   - Pretender ser bueno, no necesariamente significa que lo seas.
   - No guardar rencor, saber perdonar.
-  - Aceptar un NO, valorar un SI
+  - Aceptar y respetar un NO, valorar un SI
   - Nunca forzar
   - No encerrarme en mi propio mundo, en las mismas actividades, en la misma rutina, en las mismas ideas, en las mismas maneras de hacer las cosas. 
   - Los demás no tienen la culpa de mis problemas, no tienen porque cargar con ellos.
@@ -52,12 +52,12 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Siempre ser honesto.
   - No preocuparse de la opinión de los demás. Hagas o no hagas nunca van a estar conformes con vos.
   - La extraño pero le hago daño.
-  - La extraño pero me hago daño.
+  - La extraño pero me hace daño.
   - Esperar siempre lo peor, pero sin miedo y sin rencor.
   - Aceptar lo que no puedo cambiar.
   - Nunca conocerás completamente a otra persona. Nunca me conoceré completamente a mí mismo.
   - He sido feliz, pude haber hecho más, pero nunca es tarde para mejorar.
-  - Ví que logré cambios positivos en ella, pero qué cambié yo positivamente por ella?
+  - Ví que logré cambios positivos en ella, pero ¿qué cambié yo positivamente gracias a  ella?
   - Valorar los sacrificios y los detalles por mínimos que sean.
   - Aprender a corregir sin ofender.
   - Nunca abandonar las metas propias.
@@ -68,10 +68,10 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - La peor manera de resolver un problema es ignorarlo y distanciarse.
   - Un empleo no debe consumir mi felicidad.
   - Dejar de arrastrar al presente cosas del pasado.
-  - Dejar de obsesionarse por un futuro que no se sabe sí llegará.
+  - Dejar de obsesionarse por un futuro que no se sabe si llegará.
   - No siempre los objetivos personales son los mismos que los de la otra persona. Siempre platicar al respecto.
   - Nunca asumir y dar por sentadas las cosas.
-  - Ser detallista no me va a matar, ser muy detallista puede aburrir, cuál es el balance exacto?
+  - Ser detallista no me va a matar, ser muy detallista puede aburrir, ¿cuál es el balance exacto?
   - Ser agradecido.
   - Demostrar interés, demostrar afecto, demostrar comprensión.
   - Ser introvertido tiene cosas positivas y cosas negativas.
@@ -81,7 +81,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Nunca hay que traicionar la confianza.
   - Siempre quise que nos fuéramos de viaje solos, lejos.
   - Siempre habrá alguien mejor que uno, que tome las decisiones que uno no tomó, que aproveche las oportunidades que uno no aprovechó. Duele pero hay que vivir con eso.
-  - No esperar hasta que el otro actué, empezar uno mismo.
+  - No esperar hasta que el otro actúe, empezar uno mismo.
   - Nunca es tarde para hacer lo que siempre has querido hacer.
   - Nadie debe cargar con tus traumas.
   - Amar no es lo mismo que enamorarse (que cliché, pero sí es cierto)
