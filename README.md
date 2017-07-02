@@ -72,3 +72,8 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Dejar de obsesionarse por un futuro que no se sabe sí llegará.
   - No siempre los objetivos personales son los mismos que los de la otra persona. Siempre platicar al respecto.
   - Nunca asumir y dar por sentadas las cosas.
+  - Ser detallista no me va a matar, ser muy detallista puede aburrir, cuál es el balance exacto?
+  - Ser agradecido.
+  - Demostrar interés, demostrar afecto, demostrar comprensión.
+  - Ser introvertido tiene cosas positivas y cosas negativas.
+  - No temer a demostrar lo que siento. A veces puede ser muy tarde.
