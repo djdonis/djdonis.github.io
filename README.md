@@ -1,4 +1,4 @@
-# Mini blog temporal
+# Mini "blog" temporal
 
 Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Dar libertad no significa separarse o desentenderse
