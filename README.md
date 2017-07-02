@@ -56,3 +56,15 @@ Cosas que estoy aprendiendo y debo mejorar:
   - La extraño pero me hago daño.
   - Esperar siempre lo peor, pero sin miedo y sin rencor.
   - Aceptar lo que no puedo cambiar.
+  - Nunca conocerás completamente a otra persona. Nunca me conoceré completamente a mí mismo.
+  - He sido feliz, pude haber hecho más, pero nunca es tarde para mejorar.
+  - Ví que logré cambios positivos en ella, pero qué cambié yo positivamente por ella?
+  - Valorar los sacrificios y los detalles por mínimos que sean.
+  - Aprender a corregir sin ofender.
+  - Nunca abandonar las metas propias.
+  - Respetar las metas de la otra persona.
+  - Buscar concenso.
+  - Aprender a ceder.
+  - El orgullo no lleva a nada más que dolor y distanciamiento.
+  - La peor manera de resolver un problema es ignorarlo y distanciarse.
+  - Un empleo no debe consumir mi felicidad.
