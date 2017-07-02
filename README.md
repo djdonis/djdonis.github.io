@@ -80,3 +80,4 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Solo las palabras no van a hacer a alguien quedarse o regresar.
   - No importa lo que escriba en este momento sobre lo que hice mal o dejé de hacer, lo hecho, hecho está.
   - Nunca hay que traicionar la confianza.
+  - Siempre quise irnos de viaje solos, lejos. 
