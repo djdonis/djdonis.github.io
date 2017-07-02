@@ -91,4 +91,6 @@ Cosas que estoy aprendiendo y debo mejorar:
   - Las cosas buenas siempre son más que las malas. Solo es cuestión de perspectivas.
   - No hay que crearse falsas expectativas.
   - Que lo bueno no oculte lo malo. Que lo corrija.
+  - El hubiera no existe (que trillado también), mejor hacer las cosas en el momento en que se nos ocurren.
   - Esto también pasará.
+  - Si no hablo, si no profundizo, si no digo que quiero, si no digo que no quiero, nadie me va a conocer.
