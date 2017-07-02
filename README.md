@@ -103,6 +103,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - La familia es importante, pero no estarán siempre, hay que aprender a sobrevivir solo.
   - El dinero no es tan importante.
   - Los demás siempre van a decirte que hacer con tu vida. Hay que tomar siempre lo bueno.
+  - Nunca avergonzarme de lo que soy.
   
     Esto también pasará.
     
