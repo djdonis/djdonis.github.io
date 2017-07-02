@@ -68,3 +68,7 @@ Cosas que estoy aprendiendo y debo mejorar:
   - El orgullo no lleva a nada más que dolor y distanciamiento.
   - La peor manera de resolver un problema es ignorarlo y distanciarse.
   - Un empleo no debe consumir mi felicidad.
+  - Dejar de arrastrar al presente cosas del pasado.
+  - Dejar de obsesionarse por un futuro que no se sabe sí llegará.
+  - No siempre los objetivos personales son los mismos que los de la otra persona. Siempre platicar al respecto.
+  - Nunca asumir y dar por sentadas las cosas.
