@@ -1,6 +1,6 @@
 # Mini blog temporal
 
-Cosas que estoy aprendiendo y debo mejorar:
+Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Dar libertad no significa separarse o desentenderse
   - Si realmente te interesa alguien, te preocupas por saber que piensa o buscas las señales que te deja
   - Poner atención a las señales!
