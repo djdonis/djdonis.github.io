@@ -103,3 +103,5 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - La familia es importante, pero no estarán siempre, hay que aprender a sobrevivir solo.
   
     Esto también pasará.
+    
+    http://cuentosqueyocuento.blogspot.com/2007/10/el-anillo-del-rey.html?m=1
