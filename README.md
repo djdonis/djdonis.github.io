@@ -105,6 +105,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - El dinero no es tan importante.
   - Los demás siempre van a decirte que hacer con tu vida. Hay que tomar siempre lo bueno.
   - Nunca avergonzarme de lo que soy.
+  - Incluso en mis pendejadas mi corazón nunca se alejo de ella. Por siempre me sentiré arrepentido.
   
     Esto también pasará.
     
