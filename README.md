@@ -107,6 +107,7 @@ Cosas que estoy aprendiendo, que siento, que pienso y que debo mejorar:
   - Nunca avergonzarme de lo que soy.
   - Incluso en mis pendejadas mi corazón nunca se alejo de ella. Por siempre me sentiré arrepentido.
   - Nunca se atravesó por mi mente abandonar el barco, seguía luchando a pesar de todo. No sé que pasó.
+  - No hay que apagar el teléfono aunque te muras del enojo -_-
   - A pesar de todo siempre fui feliz.
   
     Esto también pasará.
